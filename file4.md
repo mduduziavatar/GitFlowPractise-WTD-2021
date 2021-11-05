@@ -1,3 +1,3 @@
 # Where in the world?
 
-Is my wallet?
+At the tip of the African continent
